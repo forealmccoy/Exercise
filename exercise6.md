@@ -1,1 +1,0 @@
-Here's a sentence for the newest exercise.
